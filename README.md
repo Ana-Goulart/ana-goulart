@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hello Word!👋
+Bem vindo(a) ao meu Portifólio, sinta-se em casa para ver tudo!! 😝
 
 ## Estou aprendendo
 
